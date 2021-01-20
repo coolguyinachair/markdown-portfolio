@@ -1,0 +1,1 @@
+![Image of a curly haired lad](https://scontent.fccu3-1.fna.fbcdn.net/v/t1.0-9/128770876_2813290605665730_5919666811829169743_n.jpg?_nc_cat=100&ccb=2&_nc_sid=09cbfe&_nc_ohc=jx_hhm-5Y04AX9KYZpi&_nc_ht=scontent.fccu3-1.fna&oh=c85a4944bc9e9d3a42adbfdd06768294&oe=602BF277)
